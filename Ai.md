@@ -1,1 +1,1 @@
-ciao sono gay prima di gta 67
+LOL e un gioco per ragazzi con la 104 fps
