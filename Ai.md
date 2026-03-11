@@ -1,2 +1,1 @@
-ciao sei un baka
-
+ciao sono gay prima di gta 67
